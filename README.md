@@ -30,5 +30,14 @@ It was a gadget store. I created an effective ad campaign. And he gets a lot of 
 
 ![final5](https://github.com/jkbells/Facebook-ads-Campaigns/assets/73393333/1f878dfc-5676-4379-966e-e908c1712b12)
 
+# Facebook ads - 3
 
+# Lead ads for Chiropractic Clinic
+It was a Chiropractic Clinic. I created an effective lead ad campaign. And he gets a lot of leads.
+
+![f (1)](https://github.com/jkbells/Facebook-ads-Campaigns/assets/73393333/ab59e5b7-48ee-404d-beb5-3eac858dbcb5)
+
+![f (2)](https://github.com/jkbells/Facebook-ads-Campaigns/assets/73393333/4bf08f5a-f7c1-424d-bfaa-90a4896a420d)
+
+![f (3)](https://github.com/jkbells/Facebook-ads-Campaigns/assets/73393333/51e166ff-c218-41d2-b764-4b3f189c6396)
 
