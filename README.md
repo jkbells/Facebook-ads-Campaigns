@@ -41,3 +41,23 @@ It was a Chiropractic Clinic. I created an effective lead ad campaign. And he ge
 
 ![f (3)](https://github.com/jkbells/Facebook-ads-Campaigns/assets/73393333/51e166ff-c218-41d2-b764-4b3f189c6396)
 
+# Facebook ads - 4
+
+# Clothing Store
+It was a clothes shop. The client did not get good results by running ads earlier. I analyze his business and work according to my action plan focusing on competitors and the current market. The client started getting good results.
+
+![pic1](https://github.com/jkbells/Facebook-ads-Campaigns/assets/73393333/65c73f99-fbfe-4bdd-b958-50ee439da199)
+
+![_b (2)](https://github.com/jkbells/Facebook-ads-Campaigns/assets/73393333/bb1e3bc7-a8e8-4e85-95b8-3ecce8eef89e)
+
+![_b (3)](https://github.com/jkbells/Facebook-ads-Campaigns/assets/73393333/ca7a6f62-809c-454d-9b04-141dd7dccd55)
+
+![_b (1)](https://github.com/jkbells/Facebook-ads-Campaigns/assets/73393333/a0ccf9e8-8a79-41fb-8e5f-b4e8c793c21a)
+
+![_b](https://github.com/jkbells/Facebook-ads-Campaigns/assets/73393333/710a23c7-3a02-485d-bb2d-452d99b8bdd4)
+
+
+
+
+
+
